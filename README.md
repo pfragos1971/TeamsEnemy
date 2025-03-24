@@ -7,3 +7,6 @@ Who can monitor my work and why I have to apologize for because I wanted to have
 This is the enemy of MS Teams ensuring that you are always in a running process!
 
 Have fun!!!
+
+![image](https://github.com/user-attachments/assets/cb344746-2f55-405d-9f66-85053243a270)
+
